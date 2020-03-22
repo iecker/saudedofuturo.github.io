@@ -13,6 +13,10 @@ Projeto focado em buscar o melhores profissionais do Brasil para unificar força
 -  [Legislação](https://t.me/joinchat/QkdZghsvjF1eCvF2DxvBXg)
 -  [Hospitais e Gestores Públicos](https://t.me/joinchat/QkdZghfxTnK5XyeL6vu4oA)
 
+### Tem conhecimento técnico para ajudar?
+
+Preecnha o [formulário de inscrição](https://docs.google.com/forms/d/1kO4vSgMaD9xD0hKg7rNoqE9EknlJQUj0Rc2Tj3A9Q4c/viewform?edit_requested=true)
+
 ### Ideias
 
 ### Créditos
