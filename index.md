@@ -14,3 +14,6 @@ Projeto focado em buscar o melhores profissionais do Brasil para unificar força
 -  Hospitais e Gestores Públicos: https://t.me/joinchat/QkdZghfxTnK5XyeL6vu4oA
 
 ### Ideias
+
+### Créditos
+Idealizadora: @thabataganga
